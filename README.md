@@ -1,0 +1,1 @@
+# swypes-privacy-policy
